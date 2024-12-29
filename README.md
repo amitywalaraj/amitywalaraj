@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Raj
+- 👀 I’m interested in Coding.
+- 🌱 I’m currently Pursuing BCA from Amity University Noida UP.
+- 📫 How to reach me - | Email - amitywalaraj@gmail.com
